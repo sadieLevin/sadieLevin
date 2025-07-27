@@ -1,4 +1,4 @@
-### Hi, I'm Sadie! <src="https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fbestanimations.com%2FAnimals%2FMammals%2FCats%2Fcats%2Fcute-kitty-animated-gif-25.gif&f=1&nofb=1&ipt=0c32424565f9119ad6f6c23b638ff81eda38f527088f8faa061da1fc51ca7529", width = 50>
+### Hi, I'm Sadie! <src="https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fbestanimations.com%2FAnimals%2FMammals%2FCats%2Fcats%2Fcute-kitty-animated-gif-25.gif&f=1&nofb=1&ipt=0c32424565f9119ad6f6c23b638ff81eda38f527088f8faa061da1fc51ca7529" width="50">
 
 ---
 
